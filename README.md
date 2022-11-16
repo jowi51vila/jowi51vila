@@ -8,7 +8,7 @@
 
 - Working : Web Development 💻
 - Learning : Web Development Technologies 📈
-- Hobbies : Bikes 🚲 | Cars 🏎️ | Music 🎧 | Games 🎮  
+- Hobbies : Bikes 🚲 | Cars 🏎️ | Music 🎧 | Games 🎮 | Baseball ⚾
 - Contact : joelcomes13@gmail.com
 
 
